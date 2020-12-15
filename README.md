@@ -1,1 +1,1 @@
-![freedom](https://user-images.githubusercontent.com/24681191/97119403-10507500-1721-11eb-81e6-b1593d6fd156.jpg)
+![lost everything](https://user-images.githubusercontent.com/24681191/102158283-2dd4cc00-3e92-11eb-9d32-5f26d87e93c3.jpg)
