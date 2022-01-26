@@ -1,1 +1,1 @@
-![Clementine](https://user-images.githubusercontent.com/24681191/106375650-ebfad900-639e-11eb-9285-a8cb174f1044.jpg)
+![catty](https://user-images.githubusercontent.com/24681191/151083704-6b9198e9-3ea1-4598-ae94-58644e6a1a66.jpeg)
